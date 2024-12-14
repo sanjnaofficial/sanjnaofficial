@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sanjna.contact@gmail.com**
 
-- 📄 Know about my experiences [Sanjna_Resume]([https://drive.google.com/file/d/1AKYr--mhev5xMUzdTYMZu-Qbi8LzjERf/view](https://drive.google.com/drive/u/1/folders/1DphzjLL0EmM-KLHzj9ffd1ySLEonAnLY))
+- 📄 Know about my experiences [Sanjna_resume](https://drive.google.com/drive/u/1/folders/1DphzjLL0EmM-KLHzj9ffd1ySLEonAnLY)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
